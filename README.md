@@ -1,2 +1,0 @@
-# purowoof
-my profilo 
